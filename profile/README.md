@@ -9,4 +9,4 @@ As they say: *"Good artists copy. Great artists steal"*.
 
 Musidi helps you to steal... 🤔 ideas.
 
-[Let us know how you approach piano education.](https://docs.google.com/forms/d/e/1FAIpQLSfsEZFfe8dqn-RvNYQ147uPs1nXgWu1tD5-lyAYzekvzgmRFg/viewform?usp=sf_link)
+👉 [Let us know how you approach piano education.](https://docs.google.com/forms/d/e/1FAIpQLSfsEZFfe8dqn-RvNYQ147uPs1nXgWu1tD5-lyAYzekvzgmRFg/viewform?usp=sf_link)👈
