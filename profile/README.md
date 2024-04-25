@@ -1,7 +1,6 @@
 # [Musidi](https://www.musidi.org)
 
-<img width="500" alt="image" src="https://github.com/musidi-org/.github/assets/39476147/edf9ea4e-3186-4698-abc0-ad833ee2bde1">
-
+<img width="500" alt="image" src="https://github.com/musidi-org/.github/assets/39476147/33669a36-5895-4130-b5ce-59aa235cf7ab">
 
 Musidi aims to help 🎹 pianists learn from their musical heroes.
 
